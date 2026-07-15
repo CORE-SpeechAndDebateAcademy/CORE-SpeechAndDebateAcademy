@@ -9,7 +9,7 @@ I'm an incoming freshman to high school with interests of speech, debate, coding
 * 🌍  I'm based in Austin Texas
 * 🖥️  See my portfolio at [LinkedIn](http://https://www.linkedin.com/in/evan-meharo-66a236415/)
 * ✉️  You can contact me at [evanmeharo@gmail.com](mailto:evanmeharo@gmail.com)
-* 🚀  I'm currently working on [Debate Coaching Classes for Beginners](http://calendly.com/evanmeharo/new-meeting)
+* 🚀  I'm currently working on and open to teach [Debate Coaching Classes for Beginners](https://docs.google.com/forms/d/1EJ2WBoEgXlPMoeEyCQNPYrDrjuOFiGPUqNgW6SwswVw/edit)
 * 🧠  I'm currently learning 9th grade courses to ace them once I actually start attending High School
 * 👥  I'm looking to collaborate on Speech and Debate discussions and classes
 * 💬  Ask me about I am planning to learn more of coding, financing, and business
